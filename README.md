@@ -5,7 +5,7 @@ pest of ponytown [@title-town](https://github.com/title-town) [@pt-medals](https
 i like partybeetle [pt-loveforfictional](https://github.com/pt-loveforfictional)
 
 
-<p align="center">teto lover
+<p align="center">the teto fan ever
 </p>
 <p align="center"><img width="400" alt="image" src="https://github.com/user-attachments/assets/38ce5faf-8469-4937-9b08-458d1065788f" />
 
