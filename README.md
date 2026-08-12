@@ -1,16 +1,18 @@
-## Hi there 👋
+<div align=“center”>
 
-<!--
-**katsuwagata/katsuwagata** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+THE pest of ponytown. [@title-town](https://github.com/title-town) [@pt-medals](https://github.com/pt-medals) [@ponytown-nominations](https://github.com/ponytown-nominations)
 
-Here are some ideas to get you started:
+i like poob [pt-loveforfictional](https://github.com/pt-loveforfictional)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+</div>
+
+<p align="center">pest introject
+</p>
+<p align="center"><img width="400" height="399" alt="image" src="https://github.com/user-attachments/assets/2fb2417c-fd6d-46d0-b871-c312c8f57c4b" />
+
+<div align=“center”>
+
+[prns.cc](https://pronouns.cc/@guest1314) .
+[rentry](https://rentry.co/prisoner1314)
+
+</div>
