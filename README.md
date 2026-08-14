@@ -16,7 +16,7 @@ $\color{#A33A65}{\textsf{i like partybeetle}}$ [@pt-loveforfictional](https://gi
 
 <div align="center">
 
-[prns.cc](https://pronouns.cc/@guest1314) .
+[prns.cc](https://pronouns.cc/@guest1314) $\color{#A33A65}{\textsf{ᚷ}}$
 [rentry](https://rentry.co/prisoner1314)
 
 </div>
